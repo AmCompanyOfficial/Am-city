@@ -4,7 +4,7 @@ a new metaverse game 🎮
 about Am city
 Am city is a metavers game that have more that 10000 different NFTs and infinit lands
 
-and the project woth is 400000000$
+and the project woth is 2000000000$
 
 
 AMT
